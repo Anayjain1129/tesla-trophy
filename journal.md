@@ -11,5 +11,6 @@ got the design what im gonna make and then started to work on the CAD for the CA
 <img width="895" height="601" alt="image" src="https://github.com/user-attachments/assets/3abd9196-6c18-4f05-ac4a-a77e9292bb3b" />
 
 making the ridges is kinda hard to do and i still need to figure smtg out for it so i still have to figure smtg out for it! but yea that all what i did today! 
+lapse link: https://lapse.hackclub.com/timelapse/oAmBaWHFP_6h
 
 **Total time spent: 1 hour 22mins**
