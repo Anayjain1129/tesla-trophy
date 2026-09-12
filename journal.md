@@ -26,3 +26,13 @@ so i'll work more on this and might complete this today!
 Lapse Link: https://lapse.hackclub.com/timelapse/2owgTa34CtHy
 
 **Total time spent: 1 hour 55min**
+
+# September 12th: Made the Tesla logo
+okay so i just made the tesla logo and i have to make it using spline tool and it was a bit annoying that i kept losing the line by yea i did got better at using spline tool! and then i tried to write the text on the main body ik that it was not happening before it still isn't happening now too and it's like hella krezy so like yea i did it and now i feel sleepy and my laptop is discharged too so yea! time to sleep good nini! 
+<img width="528" height="812" alt="image" src="https://github.com/user-attachments/assets/04500083-a370-4dde-95e0-b2532dc90bc8" />
+<img width="760" height="897" alt="image" src="https://github.com/user-attachments/assets/41e9d965-46ad-4128-9973-b88b5138997c" />
+<img width="778" height="831" alt="image" src="https://github.com/user-attachments/assets/d7252dc9-7678-44b2-9966-116e0b579fdd" />
+
+Lapse Link: https://lapse.hackclub.com/timelapse/sB1U8V1mIBhP
+
+**Total time spent: 55 mins**
