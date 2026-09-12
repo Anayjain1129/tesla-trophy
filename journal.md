@@ -23,6 +23,6 @@ okay so i worked like yesterday like on 11th and i just slept and forgot to writ
 <img width="810" height="671" alt="image" src="https://github.com/user-attachments/assets/26d8577b-888a-426e-b8b6-8b6a93e3b847" />
 
 so i'll work more on this and might complete this today! 
-Lapse Link: 
+Lapse Link: https://lapse.hackclub.com/timelapse/2owgTa34CtHy
 
 **Total time spent: 1 hour 55min**
