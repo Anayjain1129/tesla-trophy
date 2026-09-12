@@ -14,3 +14,15 @@ making the ridges is kinda hard to do and i still need to figure smtg out for it
 lapse link: https://lapse.hackclub.com/timelapse/oAmBaWHFP_6h
 
 **Total time spent: 1 hour 22mins**
+
+# September 11/12: almost completed!
+okay so i worked like yesterday like on 11th and i just slept and forgot to write journal and log the lapse too so it was just kept on pause and then i slept  so yea now im writing it's journal so yea! what i did was i just figured what to do with the ridges and now it works! i have also made a base for the rocket, which can also be used as stand for the rocket! 
+
+<img width="469" height="757" alt="image" src="https://github.com/user-attachments/assets/1a5d0a6d-6a58-431d-b66f-ffa27344a140" />
+<img width="813" height="743" alt="image" src="https://github.com/user-attachments/assets/34d6eaa2-67cf-40f4-9a76-5cb5d14231ae" />
+<img width="810" height="671" alt="image" src="https://github.com/user-attachments/assets/26d8577b-888a-426e-b8b6-8b6a93e3b847" />
+
+so i'll work more on this and might complete this today! 
+Lapse Link: 
+
+**Total time spent: 1 hour 55min**
