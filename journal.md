@@ -36,3 +36,10 @@ okay so i just made the tesla logo and i have to make it using spline tool and i
 Lapse Link: https://lapse.hackclub.com/timelapse/sB1U8V1mIBhP
 
 **Total time spent: 55 mins**
+
+# September 14th: Setted up the repo and now im submitting this now! 
+okay so i have now completed the project and now im gonna submit the project! 
+
+Lapse Link: 
+
+**Total time spent: 56 mins**
