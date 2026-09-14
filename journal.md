@@ -42,4 +42,4 @@ okay so i have now completed the project and now im gonna submit the project!
 
 Lapse Link: 
 
-**Total time spent: 56 mins**
+**Total time spent: 1hour  3mins**
